@@ -5,4 +5,4 @@
 🎓 MSc. Data Science '21 @ UOC   
 💻 Junior Software Engineer @ TravelPerk  
 📧 [danielsto@protonmail.com](mailto:danielsto@protonmail.com)  
-🌐 [danielsarmiento.com](https://danielsarmiento.com)  
+<!-- 🌐 [danielsarmiento.com](https://danielsarmiento.com)  -->
