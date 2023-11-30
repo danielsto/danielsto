@@ -5,3 +5,7 @@
 🎓 BSc. Computer Science & Engineering '19 @ UC3M & GMU  
 🎓 Bachelor in Business Administration '19 @ UC3M & GMU  
 <!-- 🌐 [danielsarmiento.com](https://danielsarmiento.com)  -->
+
+### Referral links
+
+📈 [Indexa Capital](https://indexacapital.com/t/QSpFji)
