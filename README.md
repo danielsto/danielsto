@@ -8,5 +8,5 @@
 
 ### Referral links
 
-📈 [Indexa Capital](https://indexacapital.com/t/QSpFji)
+📈 [Indexa Capital](https://indexacapital.com/t/QSpFji)  
 🏦 [Trade Republic](https://ref.trade.re/lq3h2v7j)
